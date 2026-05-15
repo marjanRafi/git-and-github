@@ -212,3 +212,31 @@ Hello, My name is Md. Nuruzaman Milon. I am from Uttara, Dhaka.
 
 Hi there, I am Najmus Sakib, I am from Dhaka.
 Hi, This is Ali
+
+Hi, I am Tanzid. I am from Dhaka.
+
+Hi, I am Zisan Hasan Akash from Mirpur, Dhaka 
+
+Hello, I'm Sumona Salma from Dhaka.
+
+
+Hello, This is Rakib Hossain from Gazipur.
+
+
+Hello, I'm Mahabub Ahmed, from DE.
+
+Assalamuwalaikum, I'm S. M. Redwan. I'm from Dhaka.
+
+Hello, I am Sefa from United International University
+- Nazmul Haque | Hof, Germany
+
+
+Hello there, This is Mahedi Hasan from Dhaka!
+
+Hello everyone! This is TonmoyA from NYC. 
+
+Assalamualaikum, I am Miraz and I'm from Cumilla
+
+Hello, I'm Md Jahid Hasan From Dhaka
+
+Assalamo Alaikum, I am Kaikobad from Narsingdi
